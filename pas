@@ -1,2 +1,0 @@
-Sapu_Lidi10
-Sapu_Lidi10
